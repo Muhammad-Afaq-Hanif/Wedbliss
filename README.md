@@ -8,9 +8,10 @@ WedBliss is here to make planning a wedding much simpler and less stressful. Ins
 ![image](https://github.com/user-attachments/assets/b958c0bc-0295-45e1-af18-f9dc51bb2ca9)
 ![image](https://github.com/user-attachments/assets/e1f6f754-a28a-4562-bb15-5d7d5e351661)
 
-![image](https://github.com/user-attachments/assets/a698fa95-739e-4e72-9e2c-1f09a5ee8a20)
+![image](https://github.com/user-attachments/assets/15bd4f53-6a35-4eaf-a9d8-4e3cac383eac)
 
-![image](https://github.com/user-attachments/assets/02b8de5b-cfd1-41ec-963b-ca0dacc262da)
+![image](https://github.com/user-attachments/assets/db1f1712-ae78-4978-b1b5-0ecc398906df)
+
 
 
 
